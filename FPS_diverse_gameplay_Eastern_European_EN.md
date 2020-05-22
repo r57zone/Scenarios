@@ -52,7 +52,7 @@ Winter, day. The main character wakes up in the woods from the noise of a helico
 <br><br>
 **Chapter 14-20.**<br>
 Compilation of past parts, without repetition.
-<br>
+<br><br>
 **Chapter 21: The End.**<br>
 Spring evening. The main character looks into the distance, into the forest, into a clearing and sees a nuclear mushroom in the distance. Then there are the final credits of the game.
 <br><br>
